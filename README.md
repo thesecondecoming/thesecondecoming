@@ -5,6 +5,14 @@
 
 <p align="center">me when i lock in</p>
 
-https://github.com/user-attachments/assets/dde68b77-b038-4894-a26a-d46106f068cd
+
+
+
+https://github.com/user-attachments/assets/19def2ea-2716-47cd-b658-e0d35009698e
+
+
+
+
+
 
 
